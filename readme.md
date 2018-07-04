@@ -9,4 +9,7 @@ gostou do curso quer mais? Ajude com uma doação, até um café é válido =)
 
 uma nova tentativa 
 
-commitar direto 
+commitar direto
+
+ricardo.sampaio@edu.unipar.br
+
